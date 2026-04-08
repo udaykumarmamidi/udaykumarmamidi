@@ -43,8 +43,8 @@ With over **16 years of experience** (since 2010) in the digital space, I bridge
 ---
 
 ## 📫 Let's Connect
-* **Location:** Hyderabad, India 🇮🇳
-* **Portfolio:** [yourname.pages.dev](https://your-site-here.pages.dev) (Coming Soon!)
+* **Location:** Hyderabad, India 🇮🇳 
+* **Portfolio:** [udaymamidi.online](https://udaymamidi.online) (Coming Soon!)
 * **Facebook:** [@uday.animator](https://www.facebook.com/uday.animator)
 * **Instagram:** [@im.udayhere](https://www.instagram.com/im.udayhere)
 
